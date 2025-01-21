@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **AI,Embedded systems,Arduino**
 
-- 📫 How to reach me **mido25726@gmail.com**
+- 📫 How to reach me **mostafasalama1897@gmail.com**
 
 - 📄 Know about my experiences [CV](https://drive.google.com/file/d/1_nfBKCsFlZ7avc1YA1Jcr-B4mxeH1T0x/view?usp=drive_link)
 
