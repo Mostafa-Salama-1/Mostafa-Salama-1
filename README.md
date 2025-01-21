@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mido25726@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1p5fPT-HuxjJdmZItWPaQRzPQH0LvSbLM/view]([https://drive.google.com/file/d/1p5fPT-HuxjJdmZItWPaQRzPQH0LvSbLM/view](https://drive.google.com/file/d/1_nfBKCsFlZ7avc1YA1Jcr-B4mxeH1T0x/view?usp=drive_link))
+- 📄 Know about my experiences [https://drive.google.com/file/d/1p5fPT-HuxjJdmZItWPaQRzPQH0LvSbLM/view](https://drive.google.com/file/d/1p5fPT-HuxjJdmZItWPaQRzPQH0LvSbLM/view)
 
 - ⚡ Fun fact **i think i am good**
 
