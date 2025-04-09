@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **mostafasalama1897@gmail.com**
 
-- 📄 Know about my experiences [CV](https://drive.google.com/file/d/1_nfBKCsFlZ7avc1YA1Jcr-B4mxeH1T0x/view?usp=drive_link)
+- 📄 Know about my experiences [CV](https://drive.google.com/file/d/13WMlxA5Syt8t9ZtjMGejctrbtG5fY188/view?usp=sharing)
 
 - ⚡ Fun fact **i think i am good**
 
